@@ -1,1 +1,1 @@
-# Week-7---Lecture-and-Laboratory-Activity-6
+# Week-7-Lecture-and-Laboratory-Activity-6
